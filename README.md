@@ -1,1 +1,0 @@
-# KARLSON.AJAY.github.io
